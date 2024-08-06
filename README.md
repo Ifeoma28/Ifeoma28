@@ -1,10 +1,10 @@
 - 👋 Hi, I’m @Ifeoma28
-- 👀 I just completed the Google Data analytics course.
+- 👀 I just completed the Google Data analytics course .
 - 🌱 I’m currently learning how to make insights on data.
-- 💞️ I’m looking to collaborate on .companies that do internship and entry level jobs..
+- 💞️ I’m looking to collaborate with companies that do internship and entry level jobs..
 - 📫 How to reach me jamesifeoma95@gmail.com..
 - 😄 Pronouns: She ...
-- ⚡ Fun fact: I'm a very curious person and I love to read.
+- ⚡ Fun fact: I'm a very curious person and I love plantain.
 
 <!---
 Ifeoma28/Ifeoma28 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
