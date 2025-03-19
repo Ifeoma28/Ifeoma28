@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Ifeoma28
-- 👀 I just completed the Google Data analytics course .
-- 🌱 I’m currently learning how to make insights on data.
+- 👀 Your go-to analyst for anything data.
+- 🌱 I can help you unravel the story behind the numbers.
 - 💞️ I’m looking to collaborate with companies that do internship and entry level jobs..
 - 📫 How to reach me jamesifeoma95@gmail.com.. https://www.linkedin.com/in/ifeoma-james-4458321ba
 - 😄 Pronouns: She ...
