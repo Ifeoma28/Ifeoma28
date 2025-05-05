@@ -2,7 +2,8 @@
 - 👀 Your go-to analyst for anything data.
 - 🌱 I can help you unravel the story behind the numbers.
 - 💞️ I’m looking to collaborate with companies that do internship and entry level jobs..
-- 📫 How to reach me jamesifeoma95@gmail.com.. https://www.linkedin.com/in/ifeoma-james-4458321ba
+-  📩 How to reach me jamesifeoma95@gmail.com.
+-  OR ![LinkedIn](https://www.linkedin.com/in/ifeoma-james-4458321ba)
 - 😄 Pronouns: She ...
 - ⚡ Fun fact: I'm a very curious person and I love plantain.
 
